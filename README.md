@@ -1,7 +1,7 @@
 # MURAT GULER
 **Embedded Systems, Electronic Hardware, Oceanographic Communication & Android Software Development Expert**  
 
-muratgulersw@gmail.com | [Telefon Numarası] | [GitHub Profil Linki]
+muratgulersw@gmail.com 
 
 ---
 
