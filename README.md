@@ -1,4 +1,4 @@
-# MURAT GÜLER
+# MURAT GULER
 **Embedded Systems, Electronic Hardware, Oceanographic Communication & Android Software Development Expert**  
 
 [E-posta Adresi] muratgulersw@gmail.com | [Telefon Numarası] | [GitHub Profil Linki]
